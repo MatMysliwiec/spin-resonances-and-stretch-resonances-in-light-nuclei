@@ -1,0 +1,1 @@
+# spin-resonances-and-stretch-resonances-in-light-nuclei
